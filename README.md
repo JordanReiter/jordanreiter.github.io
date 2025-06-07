@@ -17,4 +17,4 @@ For drinks, we will have water, flavored (not hard!) seltzers and sodas. If your
 
 # Looking forward to seeing you!
 
-[RSVP Link (opens your email app)](mailto:jordanreiter@gmail.com?subject=Jordan%27s%20Birthday%20Party+2025&body=I%20can%20attend%20%u2014%20%3CENTER%20NAME%20HERE%3E)
+[RSVP Link (opens your email app)](mailto:jordanreiter@gmail.com)
