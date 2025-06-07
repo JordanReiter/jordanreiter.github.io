@@ -1,11 +1,11 @@
-# Jordan Reiter's Birthday
+# Jordan Reiter's Birthday Party - Turning 48!!
 
 ## June 22nd 2025
 ### From 1pm–?
 
-*Address*: 114 E Moreland Ave, Philadelphia PA 19118
+**Address**: 114 E Moreland Ave, Philadelphia PA 19118
 
-*Phone*: 
+**Phone***: 267-438-2388
 
 There will be food (tacos!), snacks (chips/salsa/guacamole), cake, drinks, and music.
 
@@ -16,3 +16,5 @@ For the tacos we are planning to have fish tacos, vegan jackfruit carnitas, and 
 For drinks, we will have water, flavored (not hard!) seltzers and sodas. If your drink of choice is beer or wine, please feel free to bring your favorite for yourself.
 
 # Looking forward to seeing you!
+
+[RSVP Link (opens your email app)](mailto:jordanreiter@gmail.com?subject=Jordan%27s%20Birthday%20Party+2025&body=I%20can%20attend%20%u2014%20%3CENTER%20NAME%20HERE%3E)
