@@ -15,6 +15,8 @@ For the tacos we are planning to have fish tacos, vegan jackfruit carnitas, and 
 
 For drinks, we will have water, flavored (not hard!) seltzers and sodas. If your drink of choice is beer or wine, please feel free to bring your favorite for yourself.
 
+If you are feeling adventurous, I will be offering tastes of some of my whisk(ie|ey)s.
+
 # Looking forward to seeing you!
 
 RSVP by text or email: **jordanreiter@gmail.com**
