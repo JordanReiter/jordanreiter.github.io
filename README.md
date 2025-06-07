@@ -18,3 +18,5 @@ For drinks, we will have water, flavored (not hard!) seltzers and sodas. If your
 # Looking forward to seeing you!
 
 RSVP by text or email: **jordanreiter@gmail.com**
+
+<img width="160" alt="image" src="https://github.com/user-attachments/assets/5454fd14-9840-4986-a8ab-0df279fb1fa8" />
